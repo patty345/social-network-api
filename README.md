@@ -6,6 +6,10 @@ Walkthough Video
 
 Users: https://drive.google.com/file/d/1aakXGM3S5RJ_B56tJAYCFkU200Q_d-4S/view
 
+Thoughts: https://drive.google.com/file/d/1u1mF_DMPeDeKQKA6o3YiMiRP7cgSQPgG/view 
+
+Reactions: https://drive.google.com/file/d/1P2Eu8P7LkTELBcW8S6K2gvgzn4tTRCis/view
+
 
 
 # Description
